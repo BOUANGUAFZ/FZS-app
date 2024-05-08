@@ -1,3 +1,3 @@
 "# FZS-app"
-trop belle
+slimo fz
 we are the best
